@@ -14,3 +14,7 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+- allan cristian de abreu marques
+- 16anos
+- 2c exatas
+- Dr. Arnaldo Busatto
