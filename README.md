@@ -16,5 +16,5 @@ Here are some ideas to get you started:
 -->
 - allan cristian de abreu marques
 - 16anos
-- 2c exatas
+- 2c 
 - Dr. Arnaldo Busatto
